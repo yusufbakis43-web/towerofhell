@@ -1,2 +1,0 @@
-# towerofhell
-hack
